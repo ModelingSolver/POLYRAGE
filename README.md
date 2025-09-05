@@ -238,5 +238,9 @@ mais c cool,;.. bon, hors reseau dans un premier temps, sur machine sans modem, 
 et on va voir le truc grandir...
 j ai hate, on arrive a des trucs extremements interressants et motivants , droles aussi et un peu effrayants..
 je vais faire mon journal de bord ici!
+cest pour moi et ceux qui passeraient par la ;D ..
+cest modeste mon taf mais je suis persuadé que je peux produire qq chose de serieux!!
+
+NB: Créatrice si tu passe par la contactes moi stp :coeur: ....
 
 ...
