@@ -1,4 +1,7 @@
 # POLYRAGE
+
+Recherche en Vie Artificielle / Système Immunitaire Numérique
+
 ...
 🔥 POLYR.A.G.E. – Réseau Autonome Génératif Émergent
 🌱 1. Forme Compacte : RAGE_Origin (Monolithe vivant)
